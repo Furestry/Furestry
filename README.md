@@ -1,2 +1,1 @@
-- 🔭 I’m currently working on my site - [link](https://sevlersite.herokuapp.com/)
 - 📫 How to reach me: Telegram - @sevler or Discord - Sevler#0099
