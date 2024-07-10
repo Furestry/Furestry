@@ -1,1 +1,1 @@
-- 📫 How to reach me: Telegram - @sevler or Discord - Sevler#0099
+- 📫 How to reach me: Telegram - @sevler or Discord - sevler
